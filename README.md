@@ -1,0 +1,1 @@
+# -A-Revolu-o-Criativa-IA-no-Mundo-das-Artes-
